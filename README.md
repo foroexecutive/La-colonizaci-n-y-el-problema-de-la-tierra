@@ -1,1 +1,2 @@
-# La-colonizaci-n-y-el-problema-de-la-tierra
+# La-colonización-y-el-problema-de-la-tierra
+Hasta 1880 la cifra que prevalece en el comercio de exportación es la que se refiere a los productos de la ganadería. Sobre un total de 56 millones de pesos oro, valor de la exportación de ese año, los productos ganaderos sumaban 52 millones: los de la agricultura no alcanzaban aún a 800 mil pesos oro; 6 años después, estos últimos sumaban ya 9 millones y 5 años más adelante, superan los 26 millones.
